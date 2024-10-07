@@ -4,7 +4,7 @@
 
 [Book a TinyML Development appointment with Speerfish](https://speerfish-denver.square.site/s/appointments)
 
-[Book a Front End Development appointment with Speerfish](https://speerfish-denver.square.site/s/appointments)
+[Book a Front End Web Development appointment with Speerfish](https://speerfish-denver.square.site/s/appointments)
 
 [Book an Agile Project Management appointment with Speerfish](https://speerfish-denver.square.site/s/appointments)
 
