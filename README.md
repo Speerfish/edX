@@ -8,7 +8,7 @@
 
 [Book a Front End Web Development appointment with Speerfish](https://speerfish-denver.square.site/s/appointments)
 
-![w34921w7df-w3c-logo-w3c-logo-transparent-png-stickpng-3492302581](https://github.com/user-attachments/assets/dc7aaa54-58e8-4a24-983b-d70261252033)
+![58482ac6cef1014c0b5e4a1d-983438898](https://github.com/user-attachments/assets/c5728bad-cc83-40f5-b9b6-67ba6a8c40bc)
 
 [Book an Agile Project Management appointment with Speerfish](https://speerfish-denver.square.site/s/appointments)
 
