@@ -18,4 +18,8 @@
 
 ![University-of-Washington-Symbol-238391414](https://github.com/user-attachments/assets/af3bed69-a86f-4ca6-a0a5-cf9414407a9e)
 
+Project Management Institute - International Institute of Business Analysis Books & Sources of Knowledge
+
+![IMG_2651](https://github.com/user-attachments/assets/f30f6761-5df2-4e2b-8d12-0e28c93f8786)
+
 ![LF_logo_color_rgb_0-2536751286](https://github.com/user-attachments/assets/df8fde8b-0ade-4750-ab25-57303bc8160f)
