@@ -22,4 +22,6 @@ Project Management Institute - International Institute of Business Analysis Book
 
 ![IMG_2651](https://github.com/user-attachments/assets/f30f6761-5df2-4e2b-8d12-0e28c93f8786)
 
+Open Source Secure Software Development & DevOps
+
 ![LF_logo_color_rgb_0-2536751286](https://github.com/user-attachments/assets/df8fde8b-0ade-4750-ab25-57303bc8160f)
